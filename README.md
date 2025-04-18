@@ -1,0 +1,2 @@
+# AP_Gen10_IdeaPad_Slim_3x_GDN_728x90
+AP_Gen10_IdeaPad_Slim_3x_GDN_728x90
